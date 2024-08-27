@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently working on<br>🌱 I’m currently learning<br>🚀 Exploring coding and learning<br>📬 Reach me at-limadsouza35@gmail.com
+🌱 I’m currently learning AI and Data Science<br>🚀 Exploring coding and learning<br>📬 Reach me at-limadsouza35@gmail.com
 
 
 ## 🌐 Socials:
